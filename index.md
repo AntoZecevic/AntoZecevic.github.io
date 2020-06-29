@@ -8,3 +8,6 @@ Honestly i like the story more than the characters. But can you really distingui
 * can fight excellent
 * loves Trinity
 
+his favourite quote:
+> I’ve always been more interested
+> in the future than in the past.
